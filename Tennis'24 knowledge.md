@@ -1,0 +1,41 @@
+The Grand Slam in tennis is the achievement of winning all four major championships in one discipline in a calendar year. In doubles, a Grand Slam may be achieved as a team or as an individual with different partners.
+The four Grand Slam tournaments are the Australian Open in January, the French Open from late May to early June, Wimbledon in late June to early July, and the US Open in late August to early September, with each played over two weeks. The Australian and the United States tournaments are played on hard courts, the French on clay, and Wimbledon on grass. Wimbledon is the oldest tournament, founded in 1877, followed by the US in 1881, the French in 1891 (major in 1925), and the Australian in 1905, but it was not until 1925 that all four were held as officially sanctioned majors.
+
+Australian Open: 
+The Australian Open is the first Grand Slam tournament of the year, played annually in late January and early February. Since 1988, it has been played on the hard courts of the Melbourne Park sports complex, which currently uses GreenSet as its court manufacturer.
+Novak Djokovic was the defending men's singles champion. He was defeated in the semifinals by Jannik Sinner, who went on to beat Daniil Medvedev in a five-set final to win his first major title. Aryna Sabalenka successfully defended the women's singles title as she claimed her second major singles title, defeating Zheng Qinwen without losing a set during the tournament.
+In the men's singles, Jannik Sinner defeated Daniil Medvedev, 3–6, 3–6, 6–4, 6–4, 6–3.
+In the women's singles, Aryna Sabalenka defeated China's Zheng Qinwen, 6–3, 6–2.
+In the men's doubles, India's Rohan Bopanna and Australia's Matthew Ebden defeated Italy's Simone Bolelli and Italy's Andrea Vavassori, 7–6(7–0), 7–5.
+In the women's doubles, Hsieh Su-wei and Belgium's Elise Mertens defeated Ukraine's Lyudmyla Kichenok and Latvia's Jeļena Ostapenko, 6–1, 7–5.
+
+French Open: 
+The 2024 French Open was a Grand Slam tennis tournament that was played on outdoor clay courts. It was held at the Stade Roland Garros in Paris, France, from 26 May to 9 June 2024, comprising singles, doubles and mixed doubles play. Junior and wheelchair tournaments were also scheduled.
+
+It was the 123rd edition of the French Open and the second Grand Slam event of 2024. The main singles draws included 16 qualifiers for men and 16 for women out of 128 players respectively. The men's singles title was won by Carlos Alcaraz, who defeated Alexander Zverev in the final to lift his third Grand Slam title. He also became the youngest male player to win a Grand Slam across three different surfaces. Iga Świątek successfully defended her women's singles title by defeating Jasmine Paolini in the final. It was her fifth Grand Slam title and her third consecutive French Open trophy. By doing so, she recorded a 21-match winning streak in Roland Garros, which put her fourth in the match win streaks at the tournament.
+
+In the Men's doubles, Marcelo Arévalo and Mate Pavić defeated Simone Bolelli and Andrea Vavassori in straight sets to win their first major title as a pair. It was Arévalo's second major men's doubles title and Pavić's fourth. Pavić completed a career Golden Slam with the win, having previously won the three other major championships and an Olympic gold medal.
+
+In the Women's doubles, Coco Gauff and Kateřina Siniaková defeated Sara Errani and Jasmine Paolini in the final in straight sets to win their first grand slam title as a pair. It was Gauff's first major women's doubles title and Siniaková's eighth.
+
+Wimbledon: 
+The 2024 Wimbledon Championships was a Grand Slam tennis tournament that took place at the All England Lawn Tennis and Croquet Club in Wimbledon, London, England, comprising singles, doubles and mixed doubles play. Junior, wheelchair and Invitational tournaments were also scheduled. The tournament was played on grass courts, with all main draw matches played at the All England Lawn Tennis and Croquet Club, Wimbledon, from 1 July to 14 July 2024.
+
+It was the 137th edition of the Wimbledon Championships and the third Grand Slam event of 2024. The gentlemen's singles title was won by defending champion Carlos Alcaraz, who defeated Novak Djokovic in a rematch of the previous year's final to lift his fourth Grand Slam title. Barbora Krejčíková defeated Jasmine Paolini in the final to win the ladies' singles title. 
+Harri Heliövaara and Henry Patten defeated Max Purcell and Jordan Thompson in the men's doubles final. They saved three championship points en route to both players' first major title in men's doubles. Heliövaara became the first Finnish man to lift the doubles trophy at the All England Club.
+Kateřina Siniaková and United States' Taylor Townsend defeated Canada's Gabriela Dabrowski and New Zealand's Erin Routliffe, 7–6(7–5), 7–6(7–1) in the women's doubles championship. 
+
+US Open: 
+The 2024 US Open was the 144th edition of tennis' US Open and the fourth and final Grand Slam event of the year. It was held on outdoor hard courts at the USTA Billie Jean King National Tennis Center in New York City. Novak Djokovic and Coco Gauff were the men's and women's singles defending champions, respectively, but Djokovic lost in the third round to Alexei Popyrin and Gauff lost in the fourth round to Emma Navarro. It began with the preliminary rounds from August 19 to 22, followed by the tournament itself from August 26 to September 8 of this year.
+The tournament was an event run by the International Tennis Federation (ITF) and is part of the 2024 ATP Tour and the 2024 WTA Tour calendars under the Grand Slam category. The tournament was played on hard courts and took place over a series of 17 courts with Laykold surface, including the three existing main showcourts – Arthur Ashe Stadium, Louis Armstrong Stadium and Grandstand.
+Italy's Jannik Sinner defeated United States' Taylor Fritz, 6–3, 6–4, 7–5, in the US Open Men's singles championship.
+Aryna Sabalenka defeated United States' Jessica Pegula, 7–5, 7–5, in the US Open Women's singles championship.
+In Men's doubles, Australia's Max Purcell and Australia's Jordan Thompson defeated Germany's Kevin Krawietz and Germany's Tim Pütz, 6–4, 7–6(7–4). 
+In Women's doubles, Ukraine's Lyudmyla Kichenok and Latvia's Jeļena Ostapenko defeated France's Kristina Mladenovic and China's Zhang Shuai, 6–4, 6–3
+
+Olympics: 
+The tennis tournaments at the 2024 Summer Olympics in Paris ran from 27 July to 4 August at the Stade Roland Garros. The event featured a total of 175 players across five medal events: singles and doubles for both men and women and mixed doubles. 
+In the women's singles, Zheng Qinwen beat Donna Vekić to become the first Chinese tennis player to win Olympic singles gold.
+Zheng's gold medal followed an upset win in the semifinals over world #1 Iga Swiatek of Poland, the four-time and three-time defending French Open champion who had won 25 straight matches at Roland Garros. Swiatek won bronze over Anna Karolína Schmiedlová.
+In the men's singles, Novak Djokovic of Serbia overcame French Open champion Spaniard Carlos Alcaraz in straight sets after tiebreaks in both to win gold. It marked the first Olympic gold medal in his fifth Olympic Games for Djokovic, who had won a record 24 Grand Slam men's singles titles including three French Opens (2016, 2021 and 2023), as well as the first Olympic tennis gold medal for Serbia as well as his second medal after having won a bronze medal in Beijing 2008 men's singles. Djokovic also became just the fifth player to win a career singles Golden Slam consisting of all four majors and Olympic gold after Steffi Graf, Andre Agassi, Rafael Nadal and Serena Williams. 
+In the men's doubles, Matthew Ebden and John Peers became the first Australian pair to win the event since the "Woodies" (Todd Woodbridge and Mark Woodforde) in Atlanta in 1996, while the United States pairs took both silver and bronze. Sara Errani and Jasmine Paolini won the women's doubles, while Kateřina Siniaková and Tomáš Macháč won the mixed doubles.
